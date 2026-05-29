@@ -1,2 +1,0 @@
-# Shoki-Sakuma
-Creative Strategist 
